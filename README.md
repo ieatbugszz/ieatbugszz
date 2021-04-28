@@ -1,0 +1,6 @@
+- i am ieatbugszz or whatever since just ieatbugs was taken, just call me S 
+- i suck at english, i am 18
+- ur local dumbass modder-whatervver
+- i have no idea wha t im doing rn, dont even know how to code or anything i just made this account out of an impulse
+- i have a twitter adn discorfd account so good on you if you find those lmao
+- i am stupid
